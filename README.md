@@ -7,24 +7,24 @@
 
 
 ## Education
-**_____** 
+**Temple University** 
 
-*_____*
--	_____
+*Undergraduate Studies: College of Science of Technology*
+-	August 2022 - May 2026
 
 
 ## Internships																								
-**_____** 
+**SSRS** 
 
-*_____*
--	_____
+*Internship*
+-	June 2020
 
 
 ## Work Experience																			
-**_____** 
+**Temple University - CST** 
 
-*_____*
--	_____
+*Summer Camp Counselor*
+-	June 2019 - August 2023
 
 
 
