@@ -1,8 +1,9 @@
 # **CURRICULUM VITAE**
 ## **Drew Gelling**
-### **Undergraduate Biology with Teaching Student**
+### **Temple University**
+- Undergraduate Biology with Teaching Student
 [Email](mailto:drew.gelling@temple.edu)
-- Temple University
+
 
 
 ## Education
