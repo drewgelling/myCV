@@ -2,7 +2,7 @@
 ## **Drew Gelling**
 ### **Temple University**
 - Undergraduate Biology with Teaching Student
-[Email](mailto:drew.gelling@temple.edu)
+- [Email](mailto:drew.gelling@temple.edu)
 
 
 
